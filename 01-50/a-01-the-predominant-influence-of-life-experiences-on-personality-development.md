@@ -11,3 +11,9 @@ In conclusion, while inborn characteristics provide the foundational elements of
 **(Word count: 239)**
 
 ---
+
+Research indicates that the characteristics we are born with have much more influence on our personality and development than any experiences we may have in our life. 
+Which do you consider to be the major influence? 
+Give reasons for your answer and include any relevant examples from your own knowledge or experience.
+
+---
